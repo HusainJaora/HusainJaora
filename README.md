@@ -21,4 +21,4 @@ Still learning, always building.
 
 ---
 
-📬 husainjaora7@gmail.com · [LinkedIn](https://www.linkedin.com/in/husain-jaorawala)
+📬 husainjaora7@gmail.com · [LinkedIn]([https://www.linkedin.com/in/husain-jaorawala](https://www.linkedin.com/in/husain-shabbir-jaorawala-bb02a61b4/))
